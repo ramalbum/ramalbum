@@ -1,10 +1,13 @@
 <p align="center">
 <div align="center"> .  
-  @     THE GRIEVANCES     !  
+  ˚̣̣̣  ྀི  　　The Grievances System
 
-  osdd-1b system! 
+  ⠀
+    
+    ₊    ׂ bees are buzzing around 。  ౨ৎ 
+     ૮ ⩌ _ ⩌ ྀིა  my sweet delectable baby!  ꒱
+⠀⠀
   
-  C+H is highly encouraged!  
   
 ![1000009820](https://github.com/user-attachments/assets/e76e1c0f-425d-459f-a69f-fbccef8f7833)
 
@@ -23,7 +26,7 @@
 
 　 　ৎ ˚　　 ◞　　　 　𓏫　 　all my socials have the same user! 　 　𓎟𓎟　 　
 
-　　၄၃𓏻　　im not as active anymore :(　　𓂃　　i am a yumeshipper! 　　◞　
+　　၄၃𓏻　　he/any pronouns!　　𓂃　　i am a yumeshipper! 　　◞　
 
 ୧ゝ　　you can also call me macca (shorter malacai)　　𐂯　　　　﹕　　spam follow me! 
 
