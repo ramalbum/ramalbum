@@ -12,12 +12,19 @@
 
 
 <div align="center"> .  
-  
 
+̣ 　⠀ 𓈒　　ℱ　⠀𓂃　　malacai　⠀╱⠀　always ask front! 　ᛝ　⠀𓏼　⠀𓎟𓎟⠀　⠀ 　⠀｡⠀⠀
 
-  `♡︎`      usually afk will get back 2 u shortly ^_^  ꣑୧
-  
-  yumeshipper ,  we block freely  ﾉ  c+h is highly encouraged
+　　੭　　　˙　c+h is always welcomed!  ⠀ױ　 　　ꈍ ᴗ　　block freely! 
 
+  ﹕　 　observing usually — if not afk! 　　﹚　　do not copy my ponies! 
+
+　 　 ྀི◟　 　𐙚　 　i sit anywhere　.. come find me (˵•̀ᴗ - ˵ )　　 　（｡ᵕ ◞ ◟）　 　
+
+　 　ৎ ˚　　 ◞　　　 　𓏫　 　all my socials have the same user! 　 　𓎟𓎟　 　
+
+　　၄၃𓏻　　im not as active anymore :(　　𓂃　　i am a yumeshipper! 　　◞　
+
+୧ゝ　　you can also call me macca (shorter malacai)　　𐂯　　　　﹕　　spam follow me! 
 
 
