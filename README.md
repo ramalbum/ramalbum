@@ -3,19 +3,7 @@
                 ˚̣̣̣  ྀི  　　The Grievances System
 
   ⠀
-   <div align="center>
-     
-"  ₊    ׂ bees are buzzing around 。  ౨ৎ 
-   
-  ૮ ⩌ _ ⩌ ྀིა  my sweet delectable baby!  ꒱
-⠀⠀
-  
-  
-![1000009820](https://github.com/user-attachments/assets/bbf819c0-347f-43d4-a185-c4452c7b325f)
-
-
-
-<div align="center"> .  
+   ![1000009820](https://github.com/user-attachments/assets/4de7f461-7f54-4e76-9fe1-a8ac3f0903d5)
 
 ̣ 　⠀ 𓈒　　ℱ　⠀𓂃　　malacai　⠀╱⠀　always ask front! 　ᛝ　⠀𓏼　⠀𓎟𓎟⠀　⠀ 　⠀｡⠀⠀
 
