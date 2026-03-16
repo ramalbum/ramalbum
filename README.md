@@ -3,8 +3,9 @@
   ˚̣̣̣  ྀི  　　The Grievances System
 
   ⠀
-    
-    ₊    ׂ bees are buzzing around 。  ౨ৎ 
+   <div align="center>
+     
+    "  ₊    ׂ bees are buzzing around 。  ౨ৎ 
      ૮ ⩌ _ ⩌ ྀིა  my sweet delectable baby!  ꒱
 ⠀⠀
   
