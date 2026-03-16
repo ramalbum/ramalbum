@@ -1,12 +1,13 @@
 <p align="center">
 <div align="center"> .  
-  ˚̣̣̣  ྀི  　　The Grievances System
+                ˚̣̣̣  ྀི  　　The Grievances System
 
   ⠀
    <div align="center>
      
-    "  ₊    ׂ bees are buzzing around 。  ౨ৎ 
-     ૮ ⩌ _ ⩌ ྀིა  my sweet delectable baby!  ꒱
+"  ₊    ׂ bees are buzzing around 。  ౨ৎ 
+   
+  ૮ ⩌ _ ⩌ ྀིა  my sweet delectable baby!  ꒱
 ⠀⠀
   
   
