@@ -17,6 +17,6 @@
 
 　　၄၃𓏻　　𝙝𝙚/any pronouns!　　𓂃　　i am a 𝙔𝙪𝙢𝙚𝙨𝙝𝙞𝙥𝙥𝙚𝙧! 　　◞　
 
-୧ゝ　　you can also call me 𝙈𝙖𝙘𝙘𝙖!　　𐂯　　　　﹕　　𝙨𝙥𝙖𝙢 𝙛𝙤𝙡𝙡𝙤𝙬 𝙢𝙚! 
+୧ゝ　　you can also call me 𝙈𝙖𝙘𝙘𝙖!　　𐂯　　﹕　　𝙨𝙥𝙖𝙢 𝙛𝙤𝙡𝙡𝙤𝙬 𝙢𝙚! 
 
 
