@@ -1,16 +1,23 @@
-## Hi there 👋
+<p align="center">
+<div align="center"> .  
+  @     THE GRIEVANCES     !  
 
-<!--
-**ramalbum/ramalbum** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  osdd-1b system! 
+  
+  C+H is highly encouraged!  
+  
+![1000009820](https://github.com/user-attachments/assets/e76e1c0f-425d-459f-a69f-fbccef8f7833)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<div align="center"> .  
+  
+
+
+  `♡︎`      usually afk will get back 2 u shortly ^_^  ꣑୧
+  
+  yumeshipper ,  we block freely  ﾉ  c+h is highly encouraged
+
+
+
