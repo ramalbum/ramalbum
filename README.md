@@ -10,8 +10,7 @@
 ⠀⠀
   
   
-![1000009820](https://github.com/user-attachments/assets/e76e1c0f-425d-459f-a69f-fbccef8f7833)
-
+![1000009820](https://github.com/user-attachments/assets/bbf819c0-347f-43d4-a185-c4452c7b325f)
 
 
 
@@ -29,6 +28,6 @@
 
 　　၄၃𓏻　　he/any pronouns!　　𓂃　　i am a yumeshipper! 　　◞　
 
-୧ゝ　　you can also call me macca (shorter malacai)　　𐂯　　　　﹕　　spam follow me! 
+୧ゝ　　you can also call me macca!　　𐂯　　　　﹕　　spam follow me! 
 
 
