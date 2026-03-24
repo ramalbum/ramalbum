@@ -5,7 +5,7 @@
   ⠀
    ![1000009820](https://github.com/user-attachments/assets/4de7f461-7f54-4e76-9fe1-a8ac3f0903d5)
 
-̣ 　⠀ 𓈒　　ℱ　⠀𓂃　　𝙈alacai　⠀╱⠀　always ask 𝙛ront! 　ᛝ　⠀𓏼　⠀𓎟𓎟⠀　⠀ 　⠀｡⠀⠀
+̣ 　⠀ 𓈒　　ℱ　⠀𓂃　　𝙈alacai　⠀╱⠀　usually host 𝙛ronting ! 　ᛝ　⠀𓏼　⠀𓎟𓎟⠀　⠀ 　⠀｡⠀⠀
 
 　　੭　　　˙　𝘾+𝙃 is always 𝙒𝙚𝙡𝙘𝙤𝙢𝙚𝙙!  ⠀ױ　 　　ꈍ ᴗ　　𝙗𝙡𝙤𝙘𝙠 𝙛𝙧𝙚𝙚𝙡𝙮! 
 
