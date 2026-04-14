@@ -1,9 +1,8 @@
 <p align="center">
 <div align="center"> 
 
-<img width="1920" height="2331" alt="1000009900" src="https://github.com/user-attachments/assets/7641aa8a-46e6-444a-8bc0-6ce8a31390c4" />
-<div align="center"> 
-  
+<img width="1478" height="1795" alt="1000009906" src="https://github.com/user-attachments/assets/a017fa4a-7c89-46af-8988-2390227fe6a0" />
+
 
 
 ㅤㅤ꒰ㅤ**cuddling**ㅤ**or**ㅤ**hiding** ***friendly*** ౨ৎㅤ꒱
