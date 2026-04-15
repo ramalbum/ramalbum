@@ -10,5 +10,5 @@
 
 ㅤ**we are a system**  ✚  ***be mindful!***
 
-ㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤ**block free** / **copying skins** = **hide**ㅤ♡
+ㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤ**block freely** / **offtb pls w2i!**ㅤ♡
 
